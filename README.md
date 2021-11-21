@@ -1,0 +1,3 @@
+geckro is one of my many usernames. Is it keyboard spam? probably
+
+I have an unhealthy addiction to computers and Linux...
